@@ -1,7 +1,7 @@
 ## Hi there 👋
 
 
-- 🔭 Trabajo en un bar :)
+- 🔭 En búsqueda de nuevas oportunidades profesionales
 - 🌱 Siempre quiero aprender cosas nuevas
 - 👯 Estoy buscando un cambio en mi vida...
 - 💬 Me gusta leer, hacer deporte, viajar y disfrutar con mi gente querida.
